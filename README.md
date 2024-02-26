@@ -1,4 +1,4 @@
-### Hello, I'm Caner.:v:
+### Hello, I'm Caner :v:
 
 > No limit! keep running.
 
